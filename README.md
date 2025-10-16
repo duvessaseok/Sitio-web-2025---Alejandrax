@@ -1,2 +1,2 @@
-# Sitio-web-2025---Alejandra
-Los Gallos de Esencia es una marca de vinos y piscos artesanales elaborados en el corazón de la sierra peruana.
+# Sitio-web-2025-Alejandra
+Los Gallos de Esencia es una marca de vinos y piscos artesanales elaborados en el corazón de la sierra peruana. Nuestro nombre rinde homenaje a los valores de identidad, orgullo y autenticidad que nos definen. Con cada botella, compartimos la esencia de nuestra tierra, el esfuerzo de nuestras manos y el legado de generaciones dedicadas a la vitivinicultura artesanal. Nacimos en una comunidad rural con la misión de transformar lo tradicional en una experiencia única, para quienes buscan productos con historia, alma y sabor real. Creemos que el vino no solo se bebe, se celebra.
